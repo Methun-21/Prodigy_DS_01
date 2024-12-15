@@ -36,5 +36,5 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 
-- <a>[Shantanu Pandey ](https://www.linkedin.com/in/shantanu-pandey22/)(LinkedIn)</a>
-- Email: shantanupandey223@gmail.com
+- <a>[Methun Raj ](https://www.linkedin.com/in/methunraj-a-6a5aa932a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)(LinkedIn)</a>
+- Email: methunraj29@gmail.com
